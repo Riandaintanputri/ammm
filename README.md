@@ -1,0 +1,2 @@
+# ammm
+Anda sangat bodoh
